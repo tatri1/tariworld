@@ -1,2 +1,2 @@
-# tariworld.com
-tariworld of fun!
+# tariworld|
+copyright! tariworld
